@@ -3,7 +3,7 @@
 Name is on the Profile page (*why did I even bother with this...*)
 
 - I'm currently working on...
-    - making an app that makes [toothbrushing]() fun
+    - making an app that makes [tooth-brushing](https://github.com/calvin-cs262-fall2021-teamF/toothflex-project) fun
 
 - I'm currently learning...
     - JS and React Native
@@ -23,7 +23,7 @@ Name is on the Profile page (*why did I even bother with this...*)
 - Hobbies...
     - Adulting (*not yet a master*)
     - Drawing / [Making Art](https://avaruto.artstation.com/)
-    - Watching [Anime]()
+    - Watching [Anime](https://github.com/sebems/sebems/blob/main/AnimeList.md)
     - Gaming (Skyrim, Terraria, Minecraft, Tekken)
     - Programming
     - Reading (*once every blue moon*)

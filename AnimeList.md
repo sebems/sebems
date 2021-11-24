@@ -47,6 +47,8 @@
 - Ponyo
 - Made in Abyss
 
+---
+
 ## Watching:
 
 - Attack on Titan (watch season 4)
@@ -88,6 +90,7 @@
 - Grand Blue
 - Kengan Ashura
 
+---
 
 ## Watched:
 
@@ -134,3 +137,7 @@
 - Nausicaa
 - Dragon Ball: Broly
 - Rise of the Shield Hero
+
+---
+
+*updated @2021*
