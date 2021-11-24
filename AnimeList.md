@@ -1,0 +1,136 @@
+## To Watch:
+
+- Akudama Drive
+- Weathering with you
+- Your Name
+- Violet Evergarden
+- Isle of Dogs
+- Bungo Stray Dogs
+- I Want to Eat Your Pancreas
+- Anohana
+- Ragnarok
+- Charlotte
+- Rascal does not Dream of BunnyGirl Senpai
+- Charcoal Feather Federation
+- Neon Genesis Envangeleon
+- Elfen Lied
+- Gintama
+- Fate Series
+- Initial D
+- Persona 5
+- Space Dandy
+- To Your Eternity (Manga)
+- Jujitsu Kaisen
+- Durarara
+- Tokyo Revengers
+- The Great Pretender
+- Black Lagoon (?)
+- Full Metal Brotherhood
+- Nichijou
+- Lupin III
+- God of Highschool
+- Cowboy Bebop Movie
+- Blame! (MANGA)
+- Spirited Away
+- 86
+- Ippo No Punch
+- Kungfu is Dead
+- Tokyo Godfathers
+- Steamboy
+- Castle in the Sky
+- Samurai Seven
+- Last Exile
+- Kino’s Journey
+- My Neighbor Totoro
+- X1999  (??)
+- Battle Royale (??)
+- Ponyo
+- Made in Abyss
+
+## Watching:
+
+- Attack on Titan (watch season 4)
+- Fairy Tail
+- Over the Moon
+- Trigun
+- One-Punch Man (waiting for season 3)
+- Mob Psycho (waiting for season 3)
+- Doctor Stone (waiting for season 3)
+- Dorroro (???)
+- Vinland Saga (waiting for season 2)
+- Love is War (waiting for season 3)
+- Komi Can’t Communicating
+- Black Clover
+- Naruto (FILLERS & Movies)
+- Demon Slayer
+- Jojo’s Bizzare Adventure ( Giorno and Joleyn [ get Manga ])
+- The Way of the Household Husband
+- Steins Gate
+- Saiki K
+- Hunter X Hunter
+- Fairy Gone
+- Goblin Slayer (waiting for season 2)
+- Heaven’s Design Team
+- Fire Force (waiting for season 3)
+- Psycho-Pass
+- Megalobox
+- Soul Eater
+- Kuroko’s No Basket
+- Haikyuu
+- God Eater ( read Manga )
+- Cells At Work
+- Baki
+- Daily Life on An Immortal King
+- Promised Neverland ( read Manga )
+- Afro Samurai 
+- Lucky Star
+- Toilet Bound Hanako-kun
+- Grand Blue
+- Kengan Ashura
+
+
+## Watched:
+
+- The Boy and the Beast
+- Akame ga Kill (read the manga)
+- Samurai Champloo
+- Ninja Scroll
+- Your Lie in April
+- Ghost in A Shell
+- Tokyo Ghoul (read the manga)
+- Blue Exorcist
+- D. Gray Man
+- No Game No Life
+- Kabaneri On the Iron Fortress
+- Kill La Kill
+- Madoka
+- Toradora
+- Maid no Sama
+- Black Butler (read Manga)
+- Another
+- Death Parade
+- Full Metal Alchemist
+- Sakamoto
+- Ore Monogatari
+- Noragami ( read the manga)
+- Parasyte
+- Seven Deadly Sins ( Manga )
+- Cowboy Bebop
+- Deathnote
+- Deadman Wonderland
+- Assassination Classroom
+- Baka and Test
+- Basilisk
+- Devil is A Part-Timer
+- Frankenstein and Sherlock Holmes (Empire of Corpse)
+- Akira
+- A Silent Voice
+- Yasuke
+- Howl’s Moving Castle
+- Graveyard of the Fireflies
+- Sword of the Stranger
+- Blood the Last Vampire 
+- The Millennium Actress
+- Nausicaa
+- Dragon Ball: Broly
+- Rise of the Shield Hero
