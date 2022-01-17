@@ -1,8 +1,20 @@
 ## To Watch:
 
-- Akudama Drive
-- Weathering with you
 - Your Name
+- Fist of the North Star
+- Arcane
+- The Soul of Soldier
+- Rust Eater Bisco
+- Bright: Samurai Soul
+- Shaman King
+- My Last Day
+- Daily Life of High School Boys
+- Ndaho Kekkon
+- Samurai Noodles
+- Samuroid Zero
+- The Peak of True Martial Arts
+- The Legend of Kentauros
+- The Soul of Soldier
 - Violet Evergarden
 - Isle of Dogs
 - Bungo Stray Dogs
@@ -54,14 +66,13 @@
 - Attack on Titan (watch season 4)
 - Fairy Tail
 - Over the Moon
-- Trigun
 - One-Punch Man (waiting for season 3)
 - Mob Psycho (waiting for season 3)
 - Doctor Stone (waiting for season 3)
 - Dorroro (???)
 - Vinland Saga (waiting for season 2)
 - Love is War (waiting for season 3)
-- Komi Can’t Communicating
+- Komi Can’t Communicate
 - Black Clover
 - Naruto (FILLERS & Movies)
 - Demon Slayer
@@ -75,11 +86,9 @@
 - Heaven’s Design Team
 - Fire Force (waiting for season 3)
 - Psycho-Pass
-- Megalobox
 - Soul Eater
 - Kuroko’s No Basket
 - Haikyuu
-- God Eater ( read Manga )
 - Cells At Work
 - Baki
 - Daily Life on An Immortal King
@@ -89,6 +98,7 @@
 - Toilet Bound Hanako-kun
 - Grand Blue
 - Kengan Ashura
+- World's Finest Assassin
 
 ---
 
@@ -137,6 +147,11 @@
 - Nausicaa
 - Dragon Ball: Broly
 - Rise of the Shield Hero
+- Akudama Drive
+- Weathering with you
+- Trigun
+- God Eater ( read Manga )
+- Megalo Box
 
 ---
 
