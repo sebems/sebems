@@ -14,7 +14,6 @@
 - Samuroid Zero
 - The Peak of True Martial Arts
 - The Legend of Kentauros
-- The Soul of Soldier
 - Violet Evergarden
 - Isle of Dogs
 - Bungo Stray Dogs
