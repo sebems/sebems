@@ -2,12 +2,16 @@
 
 Name is on the Profile page (*why did I even bother with this...*)
 
-- I'm currently working on...
-    - making an app that makes [tooth-brushing](https://github.com/calvin-cs262-fall2021-teamF/toothflex-project) fun
+- I'm currently:
+    - working on a small game using Unity   
+
+- I finished working on...
+    - an app that makes [tooth-brushing](https://github.com/calvin-cs262-fall2021-teamF/toothflex-project) fun
 
 - I'm currently learning...
-    - JS and React Native
-    - 2D animation in Blender
+    - Flutter
+    - Drawing Basics
+    - Unity
 
 - I'm familiar with...
     - Python
