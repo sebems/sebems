@@ -1,0 +1,20 @@
+### Reading List
+- [ ] Mere Christianity by CS Lewis
+- [ ] The Animator's Toolkit by Richard Williams
+- [ ] How to be Christian by CS Lewis
+- [ ] Learning the bash Shell
+- [ ] Linux for Hackers
+- [ ] The Skeptical Believer by Daniel Taylor
+- [ ] The 7 Habits of Highly Effective Teens by Sean Covey
+- [ ] Kwezuonu
+- [ ] Things Fall Apart by Chinua Achebe
+- [ ] The Circles Series by Ted Dekker
+- [ ] Can A Scientist Believe in Miracles by Hutchinson
+- [ ] Discipled by Jesus by Terry Clark
+- [ ] The Lady in The Painting
+- [ ] Courageous Leaders
+- [ ] The God Who Hears
+- [ ] You Can If You Think You Can
+- [ ] The Illiad
+- [ ] Myths From Mesopotamia
+- [ ] The Aeneid
