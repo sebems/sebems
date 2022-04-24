@@ -3,7 +3,7 @@
 Name is on the Profile page (*why did I even bother with this...*)
 
 - I'm currently:
-    - finishing exams, then a [todo list]().
+    - finishing exams, then a [todo list](TODO.md).
 
 - I finished working on...
     - an app that makes [tooth-brushing](https://github.com/calvin-cs262-fall2021-teamF/toothflex-project) fun
