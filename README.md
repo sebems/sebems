@@ -32,7 +32,7 @@ Name is on the Profile page (*why did I even bother with this...*)
     - Programming
     - [Reading](reading_bucket_list.md) (*once every blue moon*)
 
-* *familiar but not fluent*
+\* *familiar but not fluent*
 
 <!--
 **sebems/sebems** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
