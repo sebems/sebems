@@ -31,6 +31,7 @@ Name is on the Profile page (*why did I even bother with this...*)
     - Gaming (Skyrim, Terraria, Minecraft, Tekken)
     - Programming
     - [Reading](reading_bucket_list.md) (*once every blue moon*)
+    - see [bucket list](bucket_list.md)
 
 \* *familiar but not fluent*
 
