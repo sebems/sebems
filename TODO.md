@@ -10,5 +10,3 @@
 - [ ] Poseidon Drawing
 - [ ] Cartoon Network Character Drawing
 ----
-- [ ] Drivers License Renewal
-- [ ] Applying for Canadian Visa
