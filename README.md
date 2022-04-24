@@ -30,7 +30,7 @@ Name is on the Profile page (*why did I even bother with this...*)
     - Watching [Anime](https://github.com/sebems/sebems/blob/main/AnimeList.md)
     - Gaming (Skyrim, Terraria, Minecraft, Tekken)
     - Programming
-    - Reading (*once every blue moon*)
+    - [Reading](reading_bucket_list.md) (*once every blue moon*)
 
 * *familiar but not fluent*
 
