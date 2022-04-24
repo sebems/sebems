@@ -1,0 +1,14 @@
+### Summer 2022 TODO
+- [ ] [My Resume Website](https://github.com/sebems/cv)
+- [ ] [God's Coloring App](https://github.com/LightSys/gods-story-colouring-app/tree/react_branch) Project 
+- [ ] [CalvinHacks Judging App](https://github.com/sebems/cal-hacks-web-app)
+- [ ] Home System Project with Bernard
+- [ ] [CountDown Productivity App](https://github.com/sebems/anIdea)
+- [ ] Make a single-level platformer in Unity
+- [ ] Brainstorm on Senior Project Idea
+----
+- [ ] Poseidon Drawing
+- [ ] Cartoon Network Character Drawing
+----
+- [ ] Drivers License Renewal
+- [ ] Applying for Canadian Visa
