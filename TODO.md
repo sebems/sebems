@@ -1,5 +1,5 @@
 ### Summer 2022 TODO
-- [ ] [My Resume Website](https://github.com/sebems/cv)
+- [ ] [My Resume Website](https://github.com/sebems/cv) <---
 - [ ] [God's Coloring App](https://github.com/LightSys/gods-story-colouring-app/tree/react_branch) Project 
 - [ ] [CalvinHacks Judging App](https://github.com/sebems/cal-hacks-web-app)
 - [ ] Home System Project with Bernard
